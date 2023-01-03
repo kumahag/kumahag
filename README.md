@@ -1,6 +1,6 @@
 - 👋 Hi, I’m  Mawulom Hagan
 - @kumahag
-- 👀 I’m interested in Agribusiness Entrepreneurship, Software development, Database support, Programing Games
+- 👀 Agribusiness Entrepreneur, Data Scientist - in -Training
 - 🌱 I recently completed a Professional Business Analytics Program with Azubi Africa .
 - 💞️ I’m looking to collaborate on interesting projects that bring real time solutions to business problems especially in the Agribusiness space
 - 📫 You can reach me via email :kumahag@gmail.com or on linked in: https://www.linkedin.com/in/mawulom-hagan/
